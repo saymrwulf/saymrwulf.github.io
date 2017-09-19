@@ -1,2 +1,0 @@
-# saymrwulf.github.io
-me
